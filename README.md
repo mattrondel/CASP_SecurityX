@@ -6,4 +6,4 @@ popular material mention
 Jason dion
 Mark Birch book
 
-WGU calls this D488 in the cyber program
+WGU calls this D488 in the cyber masters program
